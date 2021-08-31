@@ -1,3 +1,2 @@
 # TechnicalHomework1
-Making SECONDARY CHANGES
-AHHHHHHH Help me ;-;
+No Changes Names Yet
